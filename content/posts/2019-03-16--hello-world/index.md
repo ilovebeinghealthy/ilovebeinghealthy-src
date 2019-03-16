@@ -1,6 +1,7 @@
 ---
 title: Dieta endometriosi
 subTitle: Quali cibi evitare?
+category: "generale"
 cover: picture_one.jpg
 ---
 
