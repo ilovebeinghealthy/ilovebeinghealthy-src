@@ -7,6 +7,8 @@ cover: picture_one.jpg
 È da circa un anno che seguo una dieta specifica per l’**endometriosi**. 
 Gli effetti indesiderati della terapia ormonale che stavo seguendo (ormai da troppi anni) avevano iniziato a preoccuparmi. Così ho cercato di capire se esistessero *alternative alla pillola* per gestire la progressione della malattia, o perlomeno per riuscire a non avere troppi dolori, a vivere una vita il più serena possibile. 
 
+![unsplash.com](./picture_one.jpg)
+
 È così che ho scoperto che c’era una concreta possibilità che quello che mangiavo potesse influire sul modo in cui mi sentivo. Bè, non è stata realmente una scoperta. 
 Lo sanno tutti (o no?) quanto sia importante una *corretta alimentazione*. Ma in quanti poi lo fanno davvero? In realtà mi ero imbattuta in un qualche articolo che parlava di dieta per l’endometriosi anche qualche anno fa. Dopo aver letto la lista di alimenti che avrei dovuto escludere...sono scoppiata a ridere e ho lasciato perdere, convinta non fosse possibile per una come me (che ama il pane, la pasta, i dolci, la Nutella) seguire una dieta del genere. Con la pillola, tutto sommato, stavo bene`(all'epoca). Perchè prendersi il disturbo di fare così tante rinunce?
 Eppure, a distanza di tempo, eccomi qui, con qualche anno in più e con una maggiore consapevolezza del mio corpo e del mio benessere. 
