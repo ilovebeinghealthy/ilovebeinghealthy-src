@@ -11,10 +11,10 @@ Gli effetti indesiderati della terapia ormonale che stavo seguendo (ormai da tro
 ![unsplash.com](./picture_one.jpg)
 
 È così che ho scoperto che c’era una concreta possibilità che quello che mangiavo potesse influire sul modo in cui mi sentivo. Bè, non è stata realmente una scoperta. 
-Lo sanno tutti (o no?) quanto sia importante una *corretta alimentazione*. Ma in quanti poi lo fanno davvero? In realtà mi ero imbattuta in un qualche articolo che parlava di dieta per l’endometriosi anche qualche anno fa. Dopo aver letto la lista di alimenti che avrei dovuto escludere...sono scoppiata a ridere e ho lasciato perdere, convinta non fosse possibile per una come me (che ama il pane, la pasta, i dolci, la Nutella) seguire una dieta del genere. Con la pillola, tutto sommato, stavo bene`(all'epoca). Perchè prendersi il disturbo di fare così tante rinunce?
+Lo sanno tutti (o no?) quanto sia importante una *corretta alimentazione*. Ma in quanti poi lo fanno davvero? In realtà mi ero imbattuta in un qualche articolo che parlava di dieta per l’endometriosi anche qualche anno fa. Dopo aver letto la lista di alimenti che avrei dovuto escludere...sono scoppiata a ridere e ho lasciato perdere, convinta non fosse possibile per una come me (che ama il pane, la pasta, i dolci, la Nutella) seguire una dieta del genere. Con la pillola, tutto sommato, stavo bene (all'epoca). Perchè prendersi il disturbo di fare così tante rinunce?
 Eppure, a distanza di tempo, eccomi qui, con qualche anno in più e con una maggiore consapevolezza del mio corpo e del mio benessere. 
 
-> Ma torniamo a noi, a questa dieta. 
+> Ma torniamo a noi, a questa dieta.   
 > Mi trovavo in un momento della mia vita in cui non mi costava assolutamente nulla provare. Così mi son detta: facciamolo. 
 
 Ed ecco allora che ho cominciato a fare ricerche più approfondite, a mettere insieme cibi sì e cibi no, a cercare di capirci qualcosa. Bè, ciò che ho trovato a dire il vero mi ha un po’ sconcertato. 
@@ -61,7 +61,8 @@ Ancora più confusione per quanto riguarda la *SOIA*, ricca di fitoestrogeni, da
 
 Stessa cosa per l’*ALOE*, con proprietà antinfiammatorie e disintossicanti, eppure ricca di fitoestrogeni. O per *SEGALE* e *AVENA*, annoverati tra quei cereali integrali di cui la nostra dieta dovrebbe essere ricca secondo alcuni, ma da eliminare per il loro contenuto di fitoestrogeni secondo altri. 
 
->Ci sono ancora, purtoppo, tante incertezze, tanta confusione, tanta disinformazione. E non si capisce esattamente chi ha ragione, e perchè. 
+>Ci sono ancora, purtoppo, tante incertezze, tanta confusione, tanta disinformazione.   
+>E non si capisce esattamente chi ha ragione, e perchè. 
 
 Voglio condividere con voi **l’idea che io mi sono fatta**. Visto che non si può dare ascolto a tutti, e nello stesso tempo dato che ognuna di noi è diversa e può tollerare o meno qualche alimento, visto che non tutti i cibi presenti nella lista sono necessariamente infiammatori per tutti... la risposta alla domanda: *“quali cibi evitare?”* ahimè, dobbiamo in qualche modo darcela da sole.
 
